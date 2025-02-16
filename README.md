@@ -1,14 +1,13 @@
-# Kari McAlpine
-### Occupational Therapist (provisional status)
+# Occupational Therapist (_provisional status_)
 
 ## Direction Summary
 Returning to my roots as an Occupational Therapist, with compassion and presence, in co-creating client care based on best practices. Over ten years of prior clinical experience; welcomes new learning and responsibility in a supervised placement capacity as per the College of Occupational Therapists of Ontario guidelines for re-entry to clinical practice.
 
 ## Education & Achievement
-- National Occupational Therapy Certification Examination, Certified, 2001-2013, 2024-present 
-- Interior Architecture & Design, 3 year Diploma, UC Berkeley Extension, 2016
-- National Board for Certification in Occupational Therapy, Certified 2014-present
-- Bachelor of Science in Occupational Therapy, Queen's University, 2001
+- Certified | National Occupational Therapy Certification Examination in Canada | Active (_2001-2013, 2024-present_) 
+- Dip. Int.Arch. | Interior Architecture & Design | University of California Berkeley Extension at San Francisco (_2016_)
+- Certified | National Board for Certification in Occupational Therapy in the United States | Active (_2014-present_)
+- BSc.OT | Queen's University at Kingston Ontario (_2001)
 
 ## Professional Learning & Engagement
 - Progressive Goal Attainment Program, Successful Completion, 2024
@@ -19,9 +18,9 @@ Returning to my roots as an Occupational Therapist, with compassion and presence
 - Self-stigma, chronic pain, and the role of the occupational therapist, 2025 
 - Foundations in brain injury rehabilitation, IP
 
-## Occupational Therapy Prior Experience
-### Holland Bloorview Kids Rehabilitation Hospital, Toronto ON, (July 2009 – August 2011)
-Occupational Therapist: Brain Injury Rehabilitation Team – Inpatient & Outpatient (1.0 FTE)
+## Occupational Therapy Prior Clinical Experience
+
+**Holland Bloorview Kids Rehabilitation Hospital | Brain Injury Rehabilitation Team – Inpatient & Outpatient (1.0 FTE) | Toronto ON (July 2009 – August 2011)**
 - Impact 1: Managed a clinical caseload, ages 2 to 18yrs, with various types of brain injury, including seizure disorders for inpatient and outpatient service within a large interdisciplinary care team model.
 - Impact 2: Education Program co-facilitator and Mentored University of Toronto OT students.
 - Communication 1: Collaboration & Caseload transfer with other tertiary facilities across the province and nation, along with, community case managers, schools and care providers.
@@ -34,8 +33,7 @@ Occupational Therapist: Brain Injury Rehabilitation Team – Inpatient & Outpati
 - Skills 4: Proficient use of electronic scheduling and workload tools for daily work flows (in-patient and out-patient services).
 - Program Leadership: Delegation, supervision and supported professional growth with Occupational Therapy Assistant team members in accordance with college guidelines.
 
-### Holland Bloorview Kids Rehabilitation Hospital, Toronto ON, (May 2008 – July 2009)
-Occupational Therapist: Nursery Schools (0.6-0.7 FTE)
+**Holland Bloorview Kids Rehabilitation Hospital | Nursery School Program (0.6-0.7 FTE) | Toronto ON (May 2008 – July 2009)**
 - Impact: Provided consultation, education and enhancement support with pre-school and school-aged children, their families and professional early educators.
 - Skills 1: Applied developmental milestone knowledge in occupational analysis of preschoolers in the areas of: skills fine-motor skills, self-care skills, feeding skills, play & social engagement.
 - Skills 2: Observation, Applied Occupational Analysis and Interventions: seating/positioning, environmental accessibility/safety, and behavior shaping.
@@ -43,25 +41,21 @@ Occupational Therapist: Nursery Schools (0.6-0.7 FTE)
 - Communication: Collaboration with Skilled Early Educators, Interdisciplinary Professionals, Family members on student occupational participation goals and possibilities.
 - Research Activity: Participant in the Holland Bloorview Kids Rehab mentorship research project.
 
-
-### COTA Health: Toronto ON, Community Services, (October 2007- 2009)
-Occupational Therapist Service Provider: In-Home Paediatrics (PTE: May 2008 – July 2009)(FTE: October 2007 - May 2008)
+**Community Occupational Therapy Associates | Paediatrics Services | Toronto ON (_October 2007- 2009_)**
 - Impact: Provided in-home Assessment, Resource Support & Intervention services with children their families and carers ages birth to 14.
 - Skills: Applied occupational theory and developmental theory with current research to guide service delivery.
 - Core practice areas included: gross-motor, fine-motor, cognitive development and feeding, as well as equipment needs to support optimal development, play positioning, safety and ADL function.
 - Communications Case Manager: Written reports and summaries, Calls as required included Occupational Analysis, Co-Created Occupational Goals, Therapeutic Plan, Functional Interventions.
 - Communications Family, Carer, Child: Written, Verbal, Coaching of Occupational Analysis, Co-Created Occupational Goals, Functional Interventions.
 
-### Toronto Rehabilitation Institute: Toronto ON, (contract: August 2006 - December 2006)
-Staff Occupational Therapist: Inpatient Stroke Rehabilitation (1.0 FTE)
+**Toronto Rehabilitation Institute | Inpatient Stroke Rehabilitation (1.0 FTE) | Toronto ON (_August 2006 - December 2006_)**
 - Impact: Managed a clinical caseload of patients with strokes resulting in sensorimotor, medical, neurological, mental health and behavioral sequelae.
-- Skills 1: Used best practice to formally and functionally assess and treat skill deficits impacting the client's occupational performance, including self-care, home management, community living, leisure and driving skills. Additional areas of intervention included home safety assessments, TTC assessments, seating and mobility prescriptions, developing home treatment programs and discharge planning.
+- Skills 1: Used best practice to formally and functionally assess and treat skill deficits impacting the client's occupational performance, including self-care, home management, community living, leisure and driving skills, plus home safety, seating and community mobility. 
 - Skills 2: Use and occupational analysis with the Functional Independence Measure (FIM) for team goal setting with clients and program outcome measurement.
+- Communications: Co-creation with clients and Occupational Performace process thinking for development and delivery of treatment programming and discharge planning.
 - Leadership: Delegation and supervision with Occupational Therapy Assistant team members, on client treatment programs, in accordance with OT professional college guidelines.
 
-
-### St. Mary's General Hospital, Kitchener ON, (June 2001 - July 2006)
-Staff Occupational Therapist: Inpatient Neurology, General Medicine, and Inpatient Chest Unit, Cardiology and Orthopedics. (1.0 FTE)
+**St. Mary's General Hospital | Inpatient Neurology, General Medicine, and Inpatient Chest Unit, Cardiology and Orthopedics. (1.0 FTE) | Kitchener ON (_June 2001 - July 2006_)**
 - Impact: Managed a diverse caseload of adult and geriatric patients in stroke, neurology, general medicine, respiratory, cardiac, orthopedic, and surgery, with a high percentage of complex medical, neurological and psychosocial needs in a fast-paced, interdisciplinary, primary care setting.
 - Impact: Team collaborator and action initiative to implement a new barriatric patient care plan and specialty resources.  
 - Skills 1: proficiency with Occupational performance observations and Formal assessments; MOCA, FIM, MMSE & Test of Visual Motor Skills, second edition.
