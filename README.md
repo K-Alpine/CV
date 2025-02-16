@@ -5,7 +5,7 @@
 Returning to my roots as an Occupational Therapist, with compassion and presence, in co-creating client care based on best practices. Over ten years of prior clinical experience; welcomes new learning and responsibility in a supervised placement capacity as per the College of Occupational Therapists of Ontario guidelines for re-entry to clinical practice.
 
 ## Education & Achievement
-- National Occupational Therapy Certification Examination, Certified, 2024, 2001-2013
+- National Occupational Therapy Certification Examination, Certified, 2001-2013, 2024-present 
 - Interior Architecture & Design, 3 year Diploma, UC Berkeley Extension, 2016
 - National Board for Certification in Occupational Therapy, Certified 2014-present
 - Bachelor of Science in Occupational Therapy, Queen's University, 2001
