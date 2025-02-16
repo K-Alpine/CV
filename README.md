@@ -1,7 +1,7 @@
 # Occupational Therapist (_provisional status_)
 
-## Summary
-Returning to my roots as an Occupational Therapist, with compassion and presence, in co-creating client care based on best practices. Over ten years of prior clinical experience; welcomes new learning and responsibility in a supervised placement capacity as per the College of Occupational Therapists of Ontario guidelines for re-entry to clinical practice.
+#### Over ten years experience, Hard working, Reliable, Compassionate professionalism
+
 
 ## Education & Achievement
 - Certified | National Occupational Therapy Certification Examination in Canada | Active (_2001-2013, 2024-present_) 
