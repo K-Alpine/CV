@@ -2,7 +2,7 @@
 ### Occupational Therapist (provisional status)
 
 ## Direction Summary
-Returning to my roots as an Occupational Therapist, with compassion and presence, in co-creating client care based on best practices. Over ten years of prior clinical experience; welcomes new learning and responsibility in a supervised placement capacity as per COTO re-entry to professional practice guidelines
+Returning to my roots as an Occupational Therapist, with compassion and presence, in co-creating client care based on best practices. Over ten years of prior clinical experience; welcomes new learning and responsibility in a supervised placement capacity as per the College of Occupational Therapists of Ontario guidelines for re-entry to clinical practice.
 
 ## Education & Achievement
 - National Occupational Therapy Certification Examination, Certified, 2024, 2001-2013
