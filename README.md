@@ -19,7 +19,7 @@
 
 ## Occupational Therapy Prior Clinical Experience
 
-**Holland Bloorview Kids Rehabilitation Hospital | Brain Injury Rehab Team | In-pt & Out-pt (1.0 FTE) | Toronto ON (_July 2009 – August 2011_)**
+**Holland Bloorview Kids Rehabilitation Hospital | Brain Injury Rehab Team | In-pt & Out-pt (1.0 FTE) | Toronto ON (_Jul 2009 – Aug 2011_)**
 - Impact 1: Managed a clinical caseload, ages 2 to 18yrs, with various types of brain injury, including seizure disorders for inpatient and outpatient service within a large interdisciplinary care team model.
 - Impact 2: Education Program co-facilitator and Mentored University of Toronto OT students.
 - Communication 1: Collaboration & Caseload transfer with other tertiary facilities across the province and nation, along with, community case managers, schools and care providers.
