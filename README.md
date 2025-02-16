@@ -64,7 +64,7 @@ Staff Occupational Therapist: Inpatient Stroke Rehabilitation (1.0 FTE)
 Staff Occupational Therapist: Inpatient Neurology, General Medicine, and Inpatient Chest Unit, Cardiology and Orthopedics. (1.0 FTE)
 - Impact: Managed a diverse caseload of adult and geriatric patients in stroke, neurology, general medicine, respiratory, cardiac, orthopedic, and surgery, with a high percentage of complex medical, neurological and psychosocial needs in a fast-paced, interdisciplinary, primary care setting.
 - Impact: Team collaborator and action initiative to implement a new barriatric patient care plan and specialty resources.  
-- Skills 1: proficiency with Occupational performance observations and Formal assessments; MOCA, FIM, MMSE & Test of Visual Motor Skills, secpmd edition.
+- Skills 1: proficiency with Occupational performance observations and Formal assessments; MOCA, FIM, MMSE & Test of Visual Motor Skills, second edition.
 - Skills 2: Relationship building and partership with regional tertiary facilities, community case managers and care providers.
 - Communication: EMR documentations, client-family & team meetings, to support effective, safe and sustainable client discharge.
 - Leadership 1: Practice lead for Occupational Therapy (2004 to 2006).
