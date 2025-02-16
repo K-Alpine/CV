@@ -1,5 +1,5 @@
 # Kari McAlpine Occupational Therapy 
-!(/assets/img/Media_Circle.png){: .align-left width="45%"}
+![logo image](/assets/img/Media_Circle.png){: .align-left width="45%"}
 #### Practice Re-entry Canditate | Over ten years experience, Hard working, Reliable, Compassionate professionalism
 
 ## Education & Achievement
