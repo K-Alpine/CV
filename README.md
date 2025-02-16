@@ -1,5 +1,4 @@
 ## Practice Re-entry Canditate
-
 #### Over ten years experience, Hard working, Reliable, Compassionate professionalism
 
 
@@ -7,7 +6,7 @@
 - Certified | National Occupational Therapy Certification Examination in Canada | Active (_2001-2013, 2024-present_) 
 - Dip. Int.Arch. | Interior Architecture & Design | University of California Berkeley Extension at San Francisco (_2016_)
 - Certified | National Board for Certification in Occupational Therapy in the United States | Active (_2014-present_)
-- BSc.OT | Queen's University at Kingston Ontario (_2001)
+- BSc.OT | Queen's University at Kingston Ontario (_2001_)
 
 ## Professional Learning & Engagement
 - Progressive Goal Attainment Program, Successful Completion, 2024
@@ -16,11 +15,11 @@
 - AI in Documentation with Dennis Morrison, OT Potential Podcast, 1.25 CEU, 2025
 - An integrative occupation-based approach to management of concussion: Implications, 2025
 - Self-stigma, chronic pain, and the role of the occupational therapist, 2025 
-- Foundations in brain injury rehabilitation, IP
+- Foundations in brain injury rehabilitation, _in progress_
 
 ## Occupational Therapy Prior Clinical Experience
 
-**Holland Bloorview Kids Rehabilitation Hospital | Brain Injury Rehabilitation Team – Inpatient & Outpatient (1.0 FTE) | Toronto ON (July 2009 – August 2011)**
+**Holland Bloorview Kids Rehabilitation Hospital | Brain Injury Rehab Team | In-pt & Out-pt (1.0 FTE) | Toronto ON (_July 2009 – August 2011_)**
 - Impact 1: Managed a clinical caseload, ages 2 to 18yrs, with various types of brain injury, including seizure disorders for inpatient and outpatient service within a large interdisciplinary care team model.
 - Impact 2: Education Program co-facilitator and Mentored University of Toronto OT students.
 - Communication 1: Collaboration & Caseload transfer with other tertiary facilities across the province and nation, along with, community case managers, schools and care providers.
@@ -33,16 +32,16 @@
 - Skills 4: Proficient use of electronic scheduling and workload tools for daily work flows (in-patient and out-patient services).
 - Program Leadership: Delegation, supervision and supported professional growth with Occupational Therapy Assistant team members in accordance with college guidelines.
 
-**Holland Bloorview Kids Rehabilitation Hospital | Nursery School Program (0.6-0.7 FTE) | Toronto ON (May 2008 – July 2009)**
+**Holland Bloorview Kids Rehabilitation Hospital | Nursery School Program (0.6-0.7 FTE) | Toronto ON (_May 2008 – July 2009_)**
 - Impact: Provided consultation, education and enhancement support with pre-school and school-aged children, their families and professional early educators.
 - Skills 1: Applied developmental milestone knowledge in occupational analysis of preschoolers in the areas of: skills fine-motor skills, self-care skills, feeding skills, play & social engagement.
-- Skills 2: Observation, Applied Occupational Analysis and Interventions: seating/positioning, environmental accessibility/safety, and behavior shaping.
+- Skills 2: Observation, Applied Occupational Analysis and Interventions: seating/positioning, accessibility/safety, and behavior shaping.
 - Skills 3: Observation Use and Interpretation with the Sensory Profile Assessment.
 - Communication: Collaboration with Skilled Early Educators, Interdisciplinary Professionals, Family members on student occupational participation goals and possibilities.
 - Research Activity: Participant in the Holland Bloorview Kids Rehab mentorship research project.
 
 **Community Occupational Therapy Associates | Paediatrics Services | Toronto ON (_October 2007- 2009_)**
-- Impact: Provided in-home Assessment, Resource Support & Intervention services with children their families and carers ages birth to 14.
+- Impact: Provided in-home Assessment, Resource Support & Intervention services with children ages 0 to 15 their families and carers.
 - Skills: Applied occupational theory and developmental theory with current research to guide service delivery.
 - Core practice areas included: gross-motor, fine-motor, cognitive development and feeding, as well as equipment needs to support optimal development, play positioning, safety and ADL function.
 - Communications Case Manager: Written reports and summaries, Calls as required included Occupational Analysis, Co-Created Occupational Goals, Therapeutic Plan, Functional Interventions.
@@ -55,7 +54,7 @@
 - Communications: Co-creation with clients and Occupational Performace process thinking for development and delivery of treatment programming and discharge planning.
 - Leadership: Delegation and supervision with Occupational Therapy Assistant team members, on client treatment programs, in accordance with OT professional college guidelines.
 
-**St. Mary's General Hospital | Inpatient Neurology, General Medicine, and Inpatient Chest Unit, Cardiology and Orthopedics. (1.0 FTE) | Kitchener ON (_June 2001 - July 2006_)**
+**St. Mary's General Hospital | In-pt Neuro, General Med, In-pt Chest Unit, Cardiol and Ortho (1.0 FTE) | Kitchener ON (_June 2001 - July 2006_)**
 - Impact: Managed a diverse caseload of adult and geriatric patients in stroke, neurology, general medicine, respiratory, cardiac, orthopedic, and surgery, with a high percentage of complex medical, neurological and psychosocial needs in a fast-paced, interdisciplinary, primary care setting.
 - Impact: Team collaborator and action initiative to implement a new barriatric patient care plan and specialty resources.  
 - Skills 1: proficiency with Occupational performance observations and Formal assessments; MOCA, FIM, MMSE & Test of Visual Motor Skills, second edition.
