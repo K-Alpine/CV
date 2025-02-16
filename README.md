@@ -1,5 +1,5 @@
-## Occupational Therapy Practice Re-entry Canditate
-#### Over ten years experience, Hard working, Reliable, Compassionate professionalism
+## Kari McAlpine Occupational Therapy 
+**Practice Re-entry Canditate | Over ten years experience, Hard working, Reliable, Compassionate professionalism**
 
 
 ## Education & Achievement
