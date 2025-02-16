@@ -1,6 +1,6 @@
-## Kari McAlpine Occupational Therapy 
-**Practice Re-entry Canditate | Over ten years experience, Hard working, Reliable, Compassionate professionalism**
+# Kari McAlpine Occupational Therapy 
 
+#### Practice Re-entry Canditate | Over ten years experience, Hard working, Reliable, Compassionate professionalism
 
 ## Education & Achievement
 - Certified | National Occupational Therapy Certification Examination in Canada | Active (_2001-2013, 2024-present_) 
