@@ -9,13 +9,13 @@
 - BSc.OT | Queen's University at Kingston Ontario (_2001_)
 
 ## Professional Learning & Engagement
-- Progressive Goal Attainment Program, Successful Completion, 2024
-- 5 Hacks for Habit Change, CAOT Webinar, 2025
-- Post-traumatic stress disorder: Strategies for occupational therapy, 2025
-- AI in Documentation with Dennis Morrison, OT Potential Podcast, 1.25 CEU, 2025
-- An integrative occupation-based approach to management of concussion: Implications, 2025
-- Self-stigma, chronic pain, and the role of the occupational therapist, 2025 
-- Foundations in brain injury rehabilitation, _in progress_
+- Progressive Goal Attainment Program | PGAP Works 2024
+- 5 Hacks for Habit Change | Super Habits webinar | Maharishi Foundation Technologies 2025
+- Post-traumatic stress disorder: Strategies for occupational therapy | CAOT 2025
+- AI in Documentation with Dennis Morrison | OT Potential Podcast | 1.25 CEU 2025
+- An integrative occupation-based approach to management of concussion: Implications | CAOT 2025
+- Self-stigma, chronic pain, and the role of the occupational therapist | CAOT 2025 
+- Foundations in brain injury rehabilitation | CAOT _in progress_
 
 ## Occupational Therapy Prior Clinical Experience
 
