@@ -54,7 +54,7 @@
 - Communications Case Manager: Written reports and summaries, Calls as required included Occupational Analysis, Co-Created Occupational Goals, Therapeutic Plan, Functional Interventions.
 - Communications Family, Carer, Child: Written, Verbal, Coaching of Occupational Analysis, Co-Created Occupational Goals, Functional Interventions.
 
-
+![adult banner](assets/img/adult_banner.jpg)
 ### Adult & Older Population
 
 **Toronto Rehabilitation Institute | Inpatient Stroke Rehabilitation (1.0 FTE) | Toronto ON (_August 2006 - December 2006_)**
