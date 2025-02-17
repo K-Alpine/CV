@@ -1,12 +1,16 @@
 # Kari McAlpine Occupational Therapy 
-![logo image](/assets/img/Media_Circle.png){: .align-left width="45%"}
-#### Practice Re-entry Canditate | Over ten years experience, Hard working, Reliable, Compassionate professionalism
 
-## Education & Achievement
+![logo image](/assets/img/Media_Circle.png)
+
+**_Based in Kingston ON - Committed to relocate proximal to placement_**
+
+## Over ten years experience | Hard-Working | Mature | Compassionate
+
+## Education & Certification
 - Certified | National Occupational Therapy Certification Examination in Canada | Active (_2001-2013, 2024-present_) 
 - Dip. Int.Arch. | Interior Architecture & Design | University of California Berkeley Extension at San Francisco (_2016_)
-- Certified | National Board for Certification in Occupational Therapy in the United States | Active (_2014-present_)
-- BSc.OT | Queen's University at Kingston Ontario (_2001_)
+- BSc.OT | Queen's University at Kingston ON (_2001_)
+- BSc. Life Science | Queen's University at Kingston ON (_1997_)
 
 ## Professional Learning & Engagement
 - Progressive Goal Attainment Program | PGAP Works 2024
@@ -18,6 +22,9 @@
 - Foundations in brain injury rehabilitation | CAOT _in progress_
 
 ## Occupational Therapy Prior Clinical Experience
+
+
+### Paediatric Population
 
 **Holland Bloorview Kids Rehabilitation Hospital | Brain Injury Rehab Team | In-pt & Out-pt (1.0 FTE) | Toronto ON (_Jul 2009 – Aug 2011_)**
 - Impact 1: Managed a clinical caseload, ages 2 to 18yrs, with various types of brain injury, including seizure disorders for inpatient and outpatient service within a large interdisciplinary care team model.
@@ -46,6 +53,9 @@
 - Core practice areas included: gross-motor, fine-motor, cognitive development and feeding, as well as equipment needs to support optimal development, play positioning, safety and ADL function.
 - Communications Case Manager: Written reports and summaries, Calls as required included Occupational Analysis, Co-Created Occupational Goals, Therapeutic Plan, Functional Interventions.
 - Communications Family, Carer, Child: Written, Verbal, Coaching of Occupational Analysis, Co-Created Occupational Goals, Functional Interventions.
+
+
+### Adult & Older Population
 
 **Toronto Rehabilitation Institute | Inpatient Stroke Rehabilitation (1.0 FTE) | Toronto ON (_August 2006 - December 2006_)**
 - Impact: Managed a clinical caseload of patients with strokes resulting in sensorimotor, medical, neurological, mental health and behavioral sequelae.
