@@ -7,10 +7,10 @@
 ## Over ten years experience | Hard-Working | Mature | Compassionate
 
 ### Education & Certification
--  certified  National Occupational Therapy Certification Examination in Canada  (_2001-2013, 2024-present_)
--  Dip.Int.Arch. | Interior Architecture & Design | University of California at Berkeley in San Francisco (_2016_)
--  BSc.OT | Queen's University in Kingston ON (_2001_)
--  BSc. Life Sciences | Queen's University in Kingston ON (_1997_)
+-  certified │ National Occupational Therapy Certification Examination in Canada (_2001-2013, 2024-present_)
+-  Dip.Int.Arch. │ Interior Architecture & Design │ University of California at Berkeley in San Francisco (_2016_)
+-  BSc.OT │ Queen's University in Kingston ON (_2001_)
+-  BSc. Life Sciences │ Queen's University in Kingston ON (_1997_)
 
 
 ### Below is error
