@@ -21,6 +21,9 @@
 -  Self-stigma, chronic pain, and the role of the occupational therapist │ CAOT 2025 
 -  Foundations in brain injury rehabilitation │ CAOT _in progress_
 
+### Licensure
+ - **Ontario College of Occupational Therapists │ Registration G0104528 (_2001-2014_) │ Eligible for provisionary license with intent to achieve full license for professional practice in Ontario**
+
 ## Occupational Therapy ~ Prior Clinical Experience
 
 ![child banner](assets/img/child_blocks.png)        ![child banner](assets/img/child_computer.png)       ![child banner](assets/img/child_yoga.png) 
