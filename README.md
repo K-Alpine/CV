@@ -23,7 +23,7 @@
 
 ## Occupational Therapy Prior Clinical Experience
 
-
+![child banner](assets/img/child_blocks.png)        ![child banner](assets/img/child_computer.png)       ![child banner](assets/img/child_yoga.png) 
 ### Paediatric Population
 
 **Holland Bloorview Kids Rehabilitation Hospital | Brain Injury Rehab Team | In-pt & Out-pt (1.0 FTE) | Toronto ON (_Jul 2009 – Aug 2011_)**
