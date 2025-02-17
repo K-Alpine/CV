@@ -78,8 +78,7 @@
 
 ### Welcome calls or emails to discuss potential placement offers
 
-- 🕾 (613) 876-4086
-- 🖂 kalpine35@gmail.com
+**🕾** **(613) 876-4086** │**🖅** **kalpine35@gmail.com**
 
   
 
