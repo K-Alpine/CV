@@ -6,13 +6,13 @@
 
 ## Over ten years experience | Hard-Working | Mature | Compassionate
 
-## Education & Certification
+### Education & Certification
 - Certified | National Occupational Therapy Certification Examination in Canada | Active (_2001-2013, 2024-present_) 
 - Dip. Int.Arch. | Interior Architecture & Design | University of California Berkeley Extension at San Francisco (_2016_)
 - BSc.OT | Queen's University at Kingston ON (_2001_)
 - BSc. Life Science | Queen's University at Kingston ON (_1997_)
 
-## Professional Learning & Engagement
+### Professional Learning & Engagement
 - Progressive Goal Attainment Program | PGAP Works 2024
 - 5 Hacks for Habit Change | Super Habits webinar | Maharishi Foundation Technologies 2025
 - Post-traumatic stress disorder: Strategies for occupational therapy | CAOT 2025
