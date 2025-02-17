@@ -1,4 +1,5 @@
 title: Kari McAlpine
 logo: /assets/img/Media_Circle.png
-#description: Based in Kingston with options to relocate in proximity to placement service needs.
+#description: text below image
+show_downloads: true
 theme: jekyll-theme-minimal
