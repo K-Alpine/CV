@@ -1,4 +1,4 @@
-# Kari McAlpine Occupational Therapy 
+# Kari McAlpine ~ Occupational Therapy 
 
 ![logo image](/assets/img/Media_Circle.png)
 
@@ -21,7 +21,7 @@
 -  Self-stigma, chronic pain, and the role of the occupational therapist │ CAOT 2025 
 -  Foundations in brain injury rehabilitation │ CAOT _in progress_
 
-## Occupational Therapy Prior Clinical Experience
+## Occupational Therapy ~ Prior Clinical Experience
 
 ![child banner](assets/img/child_blocks.png)        ![child banner](assets/img/child_computer.png)       ![child banner](assets/img/child_yoga.png) 
 ### _Paediatric Population_
@@ -74,7 +74,12 @@
 - Leadership 2: Mentored OT and OTA students from McMaster University and Connestoga College.
 - Leasership 3: Co-ordinated OT, OTA and PTA student placement offerings hospital wide.
 - Leadership 4: Chair, member, presentor on hospital and program operation committees.
+##
 
+### Welcome calls or emails to discuss potential placement offers
+
+- 🕾 (613) 876-4086
+- 🖂 kalpine35@gmail.com
 
   
 
