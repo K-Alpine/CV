@@ -12,21 +12,14 @@
 -  BSc.OT │ Queen's University in Kingston ON (_2001_)
 -  BSc. Life Sciences │ Queen's University in Kingston ON (_1997_)
 
-
-### Below is error
-- Certified | National Occupational Therapy Certification Examination in Canada | Active (_2001-2013, 2024-present_) 
-- Dip. Int.Arch. | Interior Architecture & Design | University of California Berkeley Extension at San Francisco (_2016_)
-- BSc.OT | Queen's University at Kingston ON (_2001_)
-- BSc. Life Science | Queen's University at Kingston ON (_1997_)
-
 ### Professional Learning & Engagement
--  Progressive Goal Attainment Program | PGAP Works 2024
--  5 Hacks for Habit Change | Super Habits webinar | Maharishi Foundation Technologies 2025
--  Post-traumatic stress disorder: Strategies for occupational therapy | CAOT 2025
--  AI in Documentation with Dennis Morrison | OT Potential Podcast | 1.25 CEU 2025
--  An integrative occupation-based approach to management of concussion: Implications | CAOT 2025
--  Self-stigma, chronic pain, and the role of the occupational therapist | CAOT 2025 
--  Foundations in brain injury rehabilitation | CAOT _in progress_
+-  Progressive Goal Attainment Program │ PGAP Works 2024
+-  5 Hacks for Habit Change │ Super Habits webinar │ Maharishi Foundation Technologies 2025
+-  Post-traumatic stress disorder: Strategies for occupational therapy │ CAOT 2025
+-  AI in Documentation with Dennis Morrison │ OT Potential Podcast │ 1.25 CEU 2025
+-  An integrative occupation-based approach to management of concussion: Implications │ CAOT 2025
+-  Self-stigma, chronic pain, and the role of the occupational therapist │ CAOT 2025 
+-  Foundations in brain injury rehabilitation │ CAOT _in progress_
 
 ## Occupational Therapy Prior Clinical Experience
 
