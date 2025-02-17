@@ -24,7 +24,7 @@
 ## Occupational Therapy Prior Clinical Experience
 
 ![child banner](assets/img/child_blocks.png)        ![child banner](assets/img/child_computer.png)       ![child banner](assets/img/child_yoga.png) 
-### Paediatric Population
+### _Paediatric Population_
 
 **Holland Bloorview Kids Rehabilitation Hospital | Brain Injury Rehab Team | In-pt & Out-pt (1.0 FTE) | Toronto ON (_Jul 2009 – Aug 2011_)**
 - Impact 1: Managed a clinical caseload, ages 2 to 18yrs, with various types of brain injury, including seizure disorders for inpatient and outpatient service within a large interdisciplinary care team model.
@@ -55,7 +55,7 @@
 - Communications Family, Carer, Child: Written, Verbal, Coaching of Occupational Analysis, Co-Created Occupational Goals, Functional Interventions.
 
 ![adult banner](assets/img/adult_banner.jpg)
-### Adult & Older Population
+### _Adult & Older Population_
 
 **Toronto Rehabilitation Institute | Inpatient Stroke Rehabilitation (1.0 FTE) | Toronto ON (_August 2006 - December 2006_)**
 - Impact: Managed a clinical caseload of patients with strokes resulting in sensorimotor, medical, neurological, mental health and behavioral sequelae.
