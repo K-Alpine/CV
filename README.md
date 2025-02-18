@@ -79,7 +79,8 @@
 - Leadership 4: Chair, member, presentor on hospital and program operation committees.
 ##
 
-### Welcome calls or emails to discuss potential placement offers
+### _Thankyou for considering supervising my clinical re-entry._
+### _I Welcome calls or emails to discuss a placement with your clinical setting_
 
 **🕾** **(613) 876-4086** │**🖅** **kalpine35@gmail.com**
 
