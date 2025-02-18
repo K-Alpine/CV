@@ -22,7 +22,7 @@
 -  Foundations in brain injury rehabilitation │ CAOT _in progress_
 
 ### Licensure
- - **Ontario College of Occupational Therapists │ Registration G0104528 (_2001-2014_) │ Eligible for provisionary license with intent to achieve full license for professional practice in Ontario**
+ - **College of Occupational Therapists of Ontario │ Registration G0104528 (_2001-2014_) │ Eligible for provisionary license with intent to achieve full license for professional practice in Ontario**
 
 ## Occupational Therapy ~ Prior Clinical Experience
 
