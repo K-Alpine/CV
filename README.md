@@ -33,10 +33,10 @@
 - Impact 1: Managed a clinical caseload, ages 2 to 18yrs, with various types of brain injury, including seizure disorders for inpatient and outpatient service within a large interdisciplinary care team model.
 - Impact 2: Education Program co-facilitator and Mentored University of Toronto OT students.
 - Skills 1: ADP authorizer. Completed seating assessment, prescribed seating criteria and facilitated client & family equipment selection process. Plus completed documentation and funding supports.  
-- Skills 1: Formal Assessment; Beery VMI, Assisting Hand Assessment, Motor-free Visual Perception Test, 
-- Skills 2: Functional Assessment; Kitchen Assessment, Community Mobility, Safety & Awareness, Self-care Assessment, Keyboarding, Handwriting, School performance.
-- Skills 3: Outcome measurements; SMART goals, Goal Attainment Scaling & COPM.
-- Skills 4: Proficient use of electronic scheduling and workload tools for daily work flows (in-patient and out-patient services).
+- Skills 2: Formal Assessment; Beery VMI, Assisting Hand Assessment, Motor-free Visual Perception Test, 
+- Skills 3: Functional Assessment; Kitchen Assessment, Community Mobility, Safety & Awareness, Self-care Assessment, Keyboarding, Handwriting, School performance.
+- Skills 4: Outcome measurements; SMART goals, Goal Attainment Scaling & COPM.
+- Skills 5: Proficient use of electronic scheduling and workload tools for daily work flows (in-patient and out-patient services).
 - Communication 1: Collaboration & Caseload transfer with other tertiary facilities across the province and nation, along with, community case managers, schools and care providers.
 - Communication 2: EMR documentation full reports, Educational Materials, Treatment programming, Advocacy Letters, Funding Letters, Transfer Summaries.
 - Communication 3: Compassionate, collaboartive, clear verbal communication reflecting awareness and sensitivity with all (including JEDI) throughout service delivery, including; team rounds, client family meetings.
