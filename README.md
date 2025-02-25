@@ -11,7 +11,7 @@
 -  Dip.Int.Arch. │ Interior Architecture & Design │ University of California at Berkeley in San Francisco (_2016_)
 -  BSc.OT │ Queen's University in Kingston ON 
 -  BSc. Life Sciences │ Queen's University in Kingston ON 
--  Certificate in Basic First Aid and CPR with 
+-  Certificate in Basic First Aid and CPR/AED Level C
 
 -  ### Professional Learning & Engagement
 -  Progressive Goal Attainment Program │ PGAP Works 2024
