@@ -25,7 +25,9 @@
 ### Licensure
  - **College of Occupational Therapists of Ontario │ Registration G0104528 (_2001-2014_) │ Eligible for provisionary license with intent to achieve full license for professional practice in Ontario**
 
-Rich and varied work experiences working with older adults, adults, youth, primary school, nursery school and toddler age groups
+
+ ### _Rich and varied work experiences working with older adults, adults, youth, primary school, nursery school and toddler age groups_
+
 
 ## Occupational Therapy ~ Prior Clinical Experience
 
