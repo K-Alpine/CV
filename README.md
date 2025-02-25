@@ -11,7 +11,8 @@
 -  Dip.Int.Arch. │ Interior Architecture & Design │ University of California at Berkeley in San Francisco (_2016_)
 -  BSc.OT │ Queen's University in Kingston ON 
 -  BSc. Life Sciences │ Queen's University in Kingston ON 
--
+-  Certificate in Basic First Aid and CPR with 
+
 -  ### Professional Learning & Engagement
 -  Progressive Goal Attainment Program │ PGAP Works 2024
 -  5 Hacks for Habit Change │ Super Habits webinar │ Maharishi Foundation Technologies 2025
@@ -23,6 +24,8 @@
 
 ### Licensure
  - **College of Occupational Therapists of Ontario │ Registration G0104528 (_2001-2014_) │ Eligible for provisionary license with intent to achieve full license for professional practice in Ontario**
+
+Rich and varied work experiences working with older adults, adults, youth, primary school, nursery school and toddler age groups
 
 ## Occupational Therapy ~ Prior Clinical Experience
 
