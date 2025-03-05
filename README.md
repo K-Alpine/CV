@@ -25,7 +25,7 @@
  - **College of Occupational Therapists of Ontario │ Registration G0104528 (_2001-2014_) │ Eligible for temporary license in the Province of Ontario, to operate as Re-entry Candidate Occupational Therapist.**
 
 
- ### _Rich and varied work experiences working with older adults, adults, youth, primary school, nursery school and toddler age groups_
+ ##
 
 ## Cross Disciplinary Training in Architecture sought as a compliment to Occupational Therapy Services in the Community 
 
