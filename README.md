@@ -27,10 +27,8 @@
 
  ### _Rich and varied work experiences working with older adults, adults, youth, primary school, nursery school and toddler age groups_
 
-## Cross Disciplinary Training in Architecture sought as a compliment to Occupational Therapy Practice **(2013-2016)**
-- Ability to name, interpret, create or select the following; Construction documents, floor plans, design details, material and product specifications.
-- Competence collaborating with design and construction professionals from shared understanding of the design process and importance of a design brief, plus knowledge of local area building code.
-- Dedicated study and demonstrated knowledge of Accessibility Design standards, as per state of California, United States, 2016.
+## Cross Disciplinary Training in Architecture sought as a compliment to Occupational Therapy Services in the Community 
+
 
 ## Occupational Therapy ~ Prior Clinical Experience
 
