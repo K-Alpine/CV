@@ -20,7 +20,6 @@
 -  AI in Documentation with Dennis Morrison │ OT Potential Podcast │ 1.25 CEU 2025
 -  An integrative occupation-based approach to management of concussion: Implications │ CAOT 2025
 -  Self-stigma, chronic pain, and the role of the occupational therapist │ CAOT 2025 
--  Foundations in brain injury rehabilitation │ CAOT _in progress_
 
 ### Licensure
  - **College of Occupational Therapists of Ontario │ Registration G0104528 (_2001-2014_) │ Eligible for provisionary license with intent to achieve full license for professional practice in Ontario**
