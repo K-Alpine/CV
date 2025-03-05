@@ -22,11 +22,15 @@
 -  Self-stigma, chronic pain, and the role of the occupational therapist │ CAOT 2025 
 
 ### Licensure
- - **College of Occupational Therapists of Ontario │ Registration G0104528 (_2001-2014_) │ Eligible for provisionary license with intent to achieve full license for professional practice in Ontario**
+ - **College of Occupational Therapists of Ontario │ Registration G0104528 (_2001-2014_) │ Eligible for temporary license in the Province of Ontario, to operate as Re-entry Candidate Occupational Therapist.**
 
 
  ### _Rich and varied work experiences working with older adults, adults, youth, primary school, nursery school and toddler age groups_
 
+## Cross Disciplinary Training in Architecture sought as a compliment to Occupational Therapy Practice **(2013-2016)**
+- Ability to name, interpret, create or select the following; Construction documents, floor plans, design details, material and product specifications.
+- Competence collaborating with design and construction professionals from shared understanding of the design process and importance of a design brief, plus knowledge of local area building code.
+- Dedicated study and demonstrated knowledge of Accessibility Design standards, as per state of California, United States, 2016.
 
 ## Occupational Therapy ~ Prior Clinical Experience
 
