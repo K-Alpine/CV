@@ -64,7 +64,7 @@
 - Communications Family, Carer, Child: Written, Verbal, Coaching of Occupational Analysis, Co-Created Occupational Goals, Functional Interventions.
 
 ![adult banner](assets/img/adult_banner.jpg)
-### _Adult & Older Population_
+### _Adult & Older Adult Population_
 
 **Toronto Rehabilitation Institute | Inpatient Stroke Rehabilitation (1.0 FTE) | Toronto ON (_August 2006 - December 2006_)**
 - Managed a clinical caseload of patients with strokes resulting in sensorimotor, medical, neurological, mental health and behavioral sequelae.
