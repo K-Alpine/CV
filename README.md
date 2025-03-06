@@ -24,9 +24,10 @@
 ### Licensure
  - **College of Occupational Therapists of Ontario │ Registration G0104528 (_2001-2014_) │ Eligible for temporary license in the Province of Ontario, to operate as Re-entry Candidate Occupational Therapist.**
 
-##
+
 
 ## Cross Discipline Training in Interior Architecture & Design sought as a compliment to Occupational Therapy Services in the Community 
+
 
 
 ## Occupational Therapy ~ Prior Clinical Experience
