@@ -27,7 +27,7 @@
 
  ##
 
-## Cross Disciplinary Training in Architecture sought as a compliment to Occupational Therapy Services in the Community 
+## Cross Discipline Training in Interior Architecture & Design sought as a compliment to Occupational Therapy Services in the Community 
 
 
 ## Occupational Therapy ~ Prior Clinical Experience
@@ -85,8 +85,8 @@
 - Co-ordinated OT, OTA and PTA student placement offerings hospital wide.
 - Chair, member, presentor on hospital and program operation committees.
 ##
-
-### _Thankyou for considering supervising my clinical re-entry._
+  
+### _Thankyou for you interest
 ### _I Welcome calls or emails to discuss opportunities with your clinical setting_
 
 **🕾** **(613) 876-4086** │**🖅** **kalpine35@gmail.com**
