@@ -24,8 +24,7 @@
 ### Licensure
  - **College of Occupational Therapists of Ontario │ Registration G0104528 (_2001-2014_) │ Eligible for temporary license in the Province of Ontario, to operate as Re-entry Candidate Occupational Therapist.**
 
-
- ##
+##
 
 ## Cross Discipline Training in Interior Architecture & Design sought as a compliment to Occupational Therapy Services in the Community 
 
@@ -86,8 +85,8 @@
 - Chair, member, presentor on hospital and program operation committees.
 ##
   
-### _Thankyou for you interest_
-### _I Welcome calls or emails to discuss opportunities with your clinical setting_
+### _Thankyou for your interest_
+### _I Welcome calls or emails to discuss opportunities with your professional practice_
 
 **🕾** **(613) 876-4086** │**🖅** **kalpine35@gmail.com**
 
