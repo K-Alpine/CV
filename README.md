@@ -2,7 +2,7 @@
 
 ![logo image](/assets/img/Media_Circle.png)
 
-**_Based in Kingston ON - Committed to relocate proximal to clinical setting_**
+**_Committed to relocate proximal to clinical setting - Currently in Kingston ON_**
 
 ## Over ten years experience | Hard-Working | Mature | Compassionate
 
