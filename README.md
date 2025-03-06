@@ -7,11 +7,11 @@
 ## Over ten years experience | Hard-Working | Mature | Compassionate
 
 ### Education & Certification
+-  Certificate in Basic First Aid and CPR/AED Level C (_2025_)
 -  Certified │ National Occupational Therapy Certification Examination in Canada (_2001-2013, 2024-present_)
 -  Dip.Int.Arch. │ Interior Architecture & Design │ University of California at Berkeley in San Francisco (_2016_)
--  BSc.OT │ Queen's University in Kingston ON 
--  BSc. Life Sciences │ Queen's University in Kingston ON 
--  Certificate in Basic First Aid and CPR/AED Level C
+-  BSc.OT │ Queen's University in Kingston ON (_2001_)
+
 
 -  ### Professional Learning & Engagement
 -  Progressive Goal Attainment Program │ PGAP Works 2024
@@ -86,7 +86,7 @@
 - Chair, member, presentor on hospital and program operation committees.
 ##
   
-### _Thankyou for you interest
+### _Thankyou for you interest_
 ### _I Welcome calls or emails to discuss opportunities with your clinical setting_
 
 **🕾** **(613) 876-4086** │**🖅** **kalpine35@gmail.com**
