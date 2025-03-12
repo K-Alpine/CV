@@ -8,7 +8,7 @@
 
 ### Education & Certification
 -  Certificate in Basic First Aid and CPR/AED Level C (_2025_)
--  Certified │ National Occupational Therapy Certification Examination in Canada (_2001-2013, 2024-present_)
+-  Certificate of Completion │ National Occupational Therapy Certification Examination in Canada (_2001, 2024_)
 -  Dip.Int.Arch. │ Interior Architecture & Design │ University of California at Berkeley in San Francisco (_2016_)
 -  BSc.OT │ Queen's University in Kingston ON (_2001_)
 
@@ -22,11 +22,9 @@
 -  Self-stigma, chronic pain, and the role of the occupational therapist │ CAOT 2025 
 
 ### Licensure
- - **College of Occupational Therapists of Ontario │ Registration G0104528 (_2001-2014_) │ Eligible for temporary license in the Province of Ontario, to operate as Re-entry Candidate Occupational Therapist.**
+ - College of Occupational Therapists of Ontario │ Registration G0104528 (_2001-2014_)   ││    Eligible for temporary license in the Province of Ontario, to operate as Re-entry Candidate Occupational Therapist. Temporary license held for 600 hours of professional, direct and indirect activity, after which full Registration may be obtained.
 
 
-
-## Cross Discipline Training in Interior Architecture & Design sought as a compliment to Occupational Therapy Services in the Community 
 
 
 
